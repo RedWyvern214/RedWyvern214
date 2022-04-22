@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @RedWyvern214
+- 🌱 I’m currently learning coding so idk much
+- 
